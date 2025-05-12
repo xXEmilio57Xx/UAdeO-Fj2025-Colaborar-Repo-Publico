@@ -1,0 +1,1 @@
+# UAdeO-Fj2025-Colaborar-Repo-Publico
